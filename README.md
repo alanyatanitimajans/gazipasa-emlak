@@ -1,0 +1,1 @@
+# gazipasa-emlak
